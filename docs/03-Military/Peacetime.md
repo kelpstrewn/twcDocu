@@ -1,0 +1,5 @@
+My father was required to do compulsory military training and stayed on as a territorial soldier for twelve years after that. He began as a rifleman, and became a warrant officer, as he was available to organise the logistics for the activities of his unit, which occurred during school holidays. My recollection is that this was an Auckland battalion, which no longer exists. He was eventually commissioned as Lieutenant.
+
+Without particularly thinking about it or even knowing well, the family history, the activities of those living now can have strong echoes of the previous generations. 
+
+A particularly strong example of this is that of my son who joined the New Zealand Army at the age of 18 without even really knowing the family military history. He joined because was he was very interested in Call of Duty.  He was a regular force soldier for six years. He  now works in infrastructure.
