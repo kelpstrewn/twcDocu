@@ -6,7 +6,7 @@ Margaret Elizabeth Curham was born in 1884. She married Paul Sanford in 1906. Pa
 
 Josephine Curham was born in 1890. Josephine had five children between 1910 and 1922. There is mystery about the father, but her first child had the surname Shaw, and she married Edward Shaw in in 1934. Josephine was Dorothy's mother. 
 
-[Marion Ruth Curham](../04-Difficult%20pasts/Marion%20Ruth%20Curham.md) was born in 1892 and died in 1911.
+Marion Ruth Curham was born in 1892 and died in 1911.
 
 ### Uncles
 John Curham was born in 1888. He was a fireman and then a bus driver. He had five children and was married to Violet Fisher who lived in Islington St Ponsonby in 1919. There are coincidental family connections in the notice below
