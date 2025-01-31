@@ -1,8 +1,6 @@
-
+```
+```
 My father's mother was Marion Elsie Vant. She was born in 1897 at Portsea Island. Her parents were John and Elizabeth Vant. The information below is partly taken from research by others using [one name](https://vant.one-name.net/getperson.php?personID=I1684&tree=VK3) archival searches. It is in accordance with what I knew of my grandmother. I knew my grandmother as a child, and had the opportunity to carry that relationship forward in my teenage years and early twenties, but didn't. Now, in later life I regret this. My grandmother was a fine courageous women. 
-
-It is in accordance with what I knew of my grandmother. I knew my grandmother as a child, and had the opportunity to carry that relationship forward in my teenage years and early twenties, but didn't. Now, in later life I regret this. My grandmother was a fine courageous women. 
-
 
 In 1901 Marion Vant was living with her parents and five siblings at 13 Cardiff Road, Portsmouth.  My father visited Portsmouth after he retired, and went to this street. As the picture shows this is a tiny house for a large family. 
 

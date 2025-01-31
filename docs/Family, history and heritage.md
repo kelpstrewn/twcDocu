@@ -27,26 +27,7 @@ I like to tell an alternative version of these events, less close to the bone. T
 
 Here, we run into some important issues that those doing history face. Both interpretations of my early decision making have some basis in fact, but which is causal, or perhaps neither are? Having lived these events I would say that I don't know. There is lots of interpretation as I look at archival sources, and seek to combine these with family stories. But the rightness of these interpretations must always be questionable, particularly so for events that occurred 100 years ago.
 
-Being oppositional was a part of personality formation for me. In psycho-history it is referred to as the counteractive personality type. One seeks to repress and deny the elements of self that are perceived as inferior and strives to be the opposite, a superior self successfully accomplishing difficult feats, curing wounded pride and winning respect and prestige. 
-
-In moderation the counteractive strategy is fine. Taken to an extreme it can result in an unreasonable striving for superiority, a tendency to aggression, and a need to be revenged. Criminal behaviours can result. In my case some of this was present, and architecture school and the profession were perhaps not ideal for me, as the 'creator with a masterplan' ethos of architecture is not good for humility. As an old person  I am conscious of countering the counteraction, and 'de- architecting' my thought.  
- 
-These factors do lead to dissonance in behaviour and complex and unpredictable personalities. Dad could have white hot and quite frightening fits of rage, and I too have been prone to that. I was a difficult and confused teen and young adult, and even in early middle age found myself wishing to develop Christian values of humility and unselfishness, but not behaving in accordance with those.
-
-Dad could be very snobbish, and judgemental of those he thought déclassé while retaining arriviste anxieties. These were not the values of his parents or of his brother and my aunt, and were the result of his profession as a teacher, university and becoming a territorial officer.
-
-Positively, he was committed to social justice, not materialistic, and fair in making divisions. He could be stoic and he persevered. He knew more and had experienced more of  Te Ao Māori than most Pakeha do, and worked to extend the language he had retained from his youth, when that was not fashionable. At his best he was a patient and loving father.
-
-I am writing this a few months after my father died in Tauranga at age 92. Sadly, due to family circumstances I was not at his funeral in person. I attended by 'zoom'. That was a spur to record some family history, as the eulogy given by the daughter of his second wife was wildly inaccurate, and my contribution, which I asked the presiding vicar to read, was heavily edited and redacted by that family.  Here it is complete.
-
- *All happy families are alike, each unhappy family is unhappy in its own way.*
- *I see those same resonances in your life and that of your father; bushman, soldier, farmer and nightwatchman. Your enthusiasm for bush medicine, little operations , lancing of boils, bathing of cuts, gathering of firewood.*
-  *One of my cherished memories of you is the nightly story you used to read to me, which continued almost  until teenage years. I found myself reading the same books we read, such as Pickwork Papers, to Lily when she was well beyond childhood years.*  
-  *Anyway , your parenting was mostly benign, if at times somewhat less than competent (as I would say hopefully of myself).*  
-  *Your legacy was to leave me enough within myself, to go on and  be part of my own mostly happy family life. My grief is that you were unable to participate in that life.*  
- *All the variety, all the charm, all the beauty of life is made up of light and shade. Lets finish by remembering you walking in light, still as a relatively young man, fishing in the cauldron with your two quite small boys.  Eight foot long period sets were rolling in from the Tasman breaking green over the North Point. 16 foot bamboo rods, hooking up eight pound snapper, retrieved in daring between sets dashes to the waters edge. Dangerous, ill advised, but magnificent too.*  
- 
- *Thank you Dad*
+I wrote most of this a few months after my father died in Tauranga at age 92. Sadly, due to family circumstances I was not at his funeral in person. I attended by 'zoom'. That was a spur to record some family history, as the eulogy given by the daughter of his second wife was wildly inaccurate.
 
 ![](../assets/Father_and_son.webp)
-*The cauldron at Karekare with a big swell running. (artist Cameron Johnson) The original kelp strewn rock*
+*The cauldron at Karekare with a big swell running. (artist Cameron Johnson) The original kelp strewn rock, we fished here regularly in the 1970's*
